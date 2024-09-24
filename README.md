@@ -5,7 +5,7 @@
 - 🌟 I'm looking to collaborate on ETL Development Projects
 - 📫 How to reach me - sushasree2000@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I'm definitely not a cat person
+- ⚡ Fun fact: My favorite word is serendipity
 - 💬 Ask me about SNOWFLAKE/ INFORMATICA POWER CENTER/ ORACLE
 
 
